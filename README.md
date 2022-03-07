@@ -1,0 +1,5 @@
+- Hi, I’m @ButterFlyLazers Or akasuki!
+- I'm intrested in gaming and making games!
+- I'm learning programming, and modeling.
+- Not doing collabs/commisions.
+- How to reach me: Discord: akasuki!#2629
